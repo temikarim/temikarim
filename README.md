@@ -1,4 +1,4 @@
-Hi, I’m Temi Karim 👋 I’m a Master’s graduate in MSc Supply Chain Management and BA Business Management and I’m keen on entering the field of data and business analytics
+Hi, I’m Temi Karim 👋 I’m a graduate in MSc Supply Chain Management and BA Business Management and I’m keen on entering the field of data and business analytics
 
 I’m fascinated by the ability to break down complex pieces of data and summarise it into simple, visually understandable formats. It can be exciting discovering information in a way never thought of before and wondering how it can be used to better the world around us. It’s also a great way to fulfil my curious nature!
 
